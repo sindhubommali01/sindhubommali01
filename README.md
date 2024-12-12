@@ -12,7 +12,7 @@ I'm all about turning numbers into stories 📊✨. Coding, coffee, and cool pro
   Got an idea? Let’s make it happen.
 
 ## 📫 How to Reach Me
-- 💻 [Visit my portfolio]()
+- 💻 [Visit my portfolio](https://sindhubommali.work/)
 - 📧 [bommalisindhu15@gmail.com](mailto:bommalisindhu15@gmail.com)
 - 💼 [LinkedIn]([https://www.linkedin.com/](https://www.linkedin.com/in/sindhu-bommali/)
 
