@@ -14,7 +14,6 @@ I'm all about turning numbers into stories 📊✨. Coding, coffee, and cool pro
 ## 📫 How to Reach Me
 - 💻 [Visit my portfolio](https://sindhubommali.work/)
 - 📧 [bommalisindhu15@gmail.com](mailto:bommalisindhu15@gmail.com)
-- 💼 [LinkedIn](https://www.linkedin.com/in/sindhu-bommali/)
 
 ## 😄 Fun Facts
 - I love talking, learning, and sharing ideas—communication is my superpower!  
